@@ -1,4 +1,4 @@
-building [@solex-dev](https://twitter.com/solexdev) ✦ member [@superteam](https://twitter.com/superteamdao) ✦ [twitter](https://twitter.com/sahilpabale)
+senior protocol engineer [@spicenet](https://spicenet.io) ✦ [twitter](https://twitter.com/sahilpabale)
 
 ## ~/pow
 
